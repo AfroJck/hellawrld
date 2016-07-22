@@ -1,2 +1,0 @@
-# hellawrld
-vbnm,./knnnnkcm
